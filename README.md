@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Cale-heaton
-- 👀 I’m interested in Football
-- 🌱 I’m currently learning C#
-- 💞️ I’m looking to collaborate on a horror game
+- 👀 I’m interested in Fortnite
+- 🌱 I’m currently learning how to box someone
+- 💞️ I’m looking to collaborate on a fortnite cash cup // dm me
 - 📫 How to reach me snapchat - cale-h07
 - 😄 Pronouns: him
 - ⚡ Fun fact: SSL on Rocket league, Unreal on Fortnite

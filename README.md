@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Cale-heaton
 - 👀 I’m interested in Fortnite
-- 🌱 I’m currently learning how to box someone
+- 🌱 I’m currently learning how to mongraal classic
 - 💞️ I’m looking to collaborate on a fortnite cash cup // dm me
 - 📫 How to reach me snapchat - cale-h07
 - 😄 Pronouns: him
